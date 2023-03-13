@@ -1,2 +1,2 @@
 # Ayuda
-A
+En serio, no putas entiendo esto
